@@ -1,5 +1,5 @@
 I'm Ashwin R.
-I'm from Govanur.
+I'm from Govanur
 My native is Coimbatore.
 I have studied in SRMV Swami Shivananda HR SEC SCHOOL,Periyanaickenpalayam.
 I'm a student of I B.E.CSE in KITE,Saravanampatti.
